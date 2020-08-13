@@ -1,1 +1,0 @@
-# Github.Malzacher.Assignment1
